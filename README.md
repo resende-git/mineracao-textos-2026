@@ -1,0 +1,1 @@
+# mineracao-textos-2026
